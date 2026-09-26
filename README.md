@@ -233,4 +233,4 @@ AVIAddXSubs is provided as a full free version with all features and updates inc
 Ready to enhance your video experience? **Download AVIAddXSubs free today!**
 
 ---
-**Last updated:** 2026-09-26 18:48:43 UTC
+**Last updated:** 2026-09-26 21:41:33 UTC
